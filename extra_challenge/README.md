@@ -1,3 +1,3 @@
 # Extra challenges
 
-Extra challenges were found in the festival area. The ones found here were in, on or near the vendor's promotional material.
+Extra challenges were found in the festival area. The ones found here were in, on or near the vendor's promotional material. There were many more according to the organisers.
